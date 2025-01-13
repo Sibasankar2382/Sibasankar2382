@@ -4,6 +4,6 @@ Completed a comprehensive 850+ hour Data Analytics course at Masai School with h
 Seeking an opportunity to apply the skills and knowledge while continuing to learn and grow in this dynamic field.
 
 More About Masai School:[Click Here](https://masaischool.com/)
-* 🌱 I’m currently learning Data Analytics Course
+* 🌱 I’m currently learning **Data Analytics Course**
 * 📫 How to reach me:[Linkedin](https://www.linkedin.com/in/sibasankar-gauda-a6a658296/) **|** [**sibasankar2382@gmail.com**](mailto:sibasankar2382@gmail.com)
 
